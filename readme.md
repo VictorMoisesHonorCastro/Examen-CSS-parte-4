@@ -1,0 +1,1 @@
+He escogido el código que tenia de otro trabajo i he intentado ponerle algunas animaciones por cuenta propia pero no he podido, tendría que haberlo echo con anima en figma pero me daba algún error.
